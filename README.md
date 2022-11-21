@@ -1,2 +1,2 @@
 Sebastian Arriagada Muñoz
-ICI - I
+ICI-I
